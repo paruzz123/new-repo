@@ -1,6 +1,1 @@
- hello
-hai
-i
-am
-zeeezuee
-
+how r u
