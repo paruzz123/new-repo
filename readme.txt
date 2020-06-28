@@ -1,1 +1,1 @@
-how r u
+its too hot 
